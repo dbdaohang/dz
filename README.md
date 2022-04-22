@@ -1,17 +1,17 @@
 ⭐️逗B导航⭐️ 地址发布页
 👉 最新地址：https://dbdh1.xyz
 
-永久发布页地址：https://dbdh.cc
+永久发布域名：dbdh.cc
 
 请牢记永久地址， Ctrl+D 收藏本页，方便找到回家的路!
 
 👉 备用地址发布页 ：
 
-① https://caoyise.gitbook.io/fabu
+① https://dbdh.cc/
 
-② https://www.ebay.com/usr/caoyise
+② https://db-dh.gitbook.io/fabu/
 
-③ https://fabu.home.blog
+③ https://github.com/dbdaohang/dz
 
 📧 最新地址索取邮箱: DBDaoHang@gmail.com
 
