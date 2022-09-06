@@ -1,5 +1,5 @@
 ⭐️逗B导航⭐️ 地址发布页
-👉 最新地址：https://dbdh1.xyz
+👉 最新地址：https://dbdh.buzz
 
 永久发布页地址：https://dbdh.cc
 
