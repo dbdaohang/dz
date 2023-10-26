@@ -1,5 +1,5 @@
 ⭐️逗比导航⭐️ 地址发布页
-👉 最新地址：https://db16.buzz
+👉 最新地址：https://db17.buzz
 
 永久发布页地址：https://dbdh.cc
 
